@@ -10,7 +10,7 @@ Trivia/Facts:
 - They are neurodivergent, but it's only been publicly stated that they're autistic. (I wouldn't mind y'all guessing based off of the info here :D)
 - They have a friend named Vince; he's part of an uptight, competitive community.
 - When they were younger, Arbiter fixated on Army, and even saw the match between Team Orange and Team Blue. This fixation is still obvious, since they still dress and use similar weapons as their idol.
-- Arbiter has major, disdainful sentiments towards Team Blue; specifcically Goggles and Bobble Hat. They are a lot harsher towards them, occasionally to the point where the penalties are unfair and unjustified.
+- Arbiter has major, disdainful sentiments towards Team Blue; specifically Goggles and Bobble Hat. They are a lot harsher towards them, occasionally to the point where the penalties are unfair and unjustified.
 - They may also look up to Team Emperor, but mostly due to the high standards Emperor had set for everyone and the tactics the team applied.
 - The album TRUST CEREMONY and the song Split! by Jhariah are associated with this OC.
 
